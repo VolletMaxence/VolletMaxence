@@ -1,1 +1,1 @@
-<img src="https://tenor.com/view/gastrodon-tritodon-spinning-okayu-nekomata-okayu-gif-24088570" style="width:100vw"> 
+<img src="https://c.tenor.com/7hdgXYYxy9kAAAAC/gastrodon-tritodon.gif" style="width:100vw"> 
